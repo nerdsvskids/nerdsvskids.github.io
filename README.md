@@ -1,1 +1,1 @@
-hold my bear
+hold my beer
